@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 💬 My Email is 17625752606@163.com
+- 💬 My Email is kohlarnhin@gmail.com
 
 <!--
 - 🔭 I’m currently working on ...
